@@ -84,7 +84,6 @@
 ---
 
 ## конкурс Студенческий Стартап-2026 (очередь 7, Фонд Содействия инновациям) 
-Грант 1 млн.руб.
 
 Презентация https://docs.google.com/document/d/1R6TTaAr_WVv2EP1XHG8qu2v3fWvl-m0W/edit?usp=sharing&ouid=104167733822788695394&rtpof=true&sd=true
 
